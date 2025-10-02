@@ -2,7 +2,7 @@
 ===================================================
                 GOJIRA - THE CELL
 ===================================================
-Cover by cute::wire (Alvaro Caceres)
+Strudel cover by cute::wire (Alvaro Caceres)
 Oct 2 2025. Tlanepaltla, Mexico
 
 https://instagram.com/cutewiremusic
